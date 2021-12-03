@@ -1,1 +1,1 @@
-# Rethink-Academy
+Repositório Rethink-Academy Paula Vieira
